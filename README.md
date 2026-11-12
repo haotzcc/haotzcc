@@ -5,3 +5,5 @@
 - 📫 How to reach me ...
 
 www.haotz.cc
+open in X/Cent/Chrome/Edge/firefox/Sarafi
+or use app
